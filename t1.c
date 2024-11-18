@@ -1,6 +1,7 @@
-eat the food
-study
-time to run
+eat injaipur the food
+study in mqay
+time is not to run
 
-go to college
- 
+i will not go to college
+
+sleep
