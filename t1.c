@@ -1,6 +1,6 @@
 eat the food
-
-time to sleeep
+study
+time to run
 
 go to college
 
